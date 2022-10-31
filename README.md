@@ -1,2 +1,2 @@
-Pour les information, voir le wiki 
+Pour les information, voir le wiki | 
 
